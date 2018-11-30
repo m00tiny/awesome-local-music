@@ -4,9 +4,9 @@ A curated list of resources for finding local music everywhere
   
 ## list should be alphabetical by City, State  
   
-### Not a list of shows, but a resources for where to find local shows  
+Not a list of shows, but a resources for where to find local shows  
   
-# Atlanta,GA  
+# Atlanta, GA  
 [The Starbar](http://www.starbaratlanta.com) - [FB](https://www.facebook.com/star.bar.142/)  
   
 # Sacramento, CA  
