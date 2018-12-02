@@ -14,6 +14,8 @@ Not a list of shows, but a resources for where to find local shows
 [Punch and Pie Productions](https://www.facebook.com/PunchAndPieProductions/)  
 [SacramentoPunkShows.com](http://www.sacramentopunkshows.com) - [FB](https://www.facebook.com/sacramentopunkshows)  
 [The Press Club](https://www.facebook.com/thepressclub/)  
+The Bluelamp  
+Limelight  
 [The Boardwalk (Orangevale, CA)](https://www.facebook.com/theboardwalkrocks/)  
   
 # Germany (unreviewed)
