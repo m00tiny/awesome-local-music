@@ -15,7 +15,7 @@ Not a list of shows, but a resources for where to find local shows
 [SacramentoPunkShows.com](http://www.sacramentopunkshows.com) - [FB](https://www.facebook.com/sacramentopunkshows)  
 [The Press Club](https://www.facebook.com/thepressclub/)  
 The Bluelamp  
-Limelight  
+Limelight Cafe  
 [The Boardwalk (Orangevale, CA)](https://www.facebook.com/theboardwalkrocks/)  
   
 # Germany (unreviewed)
