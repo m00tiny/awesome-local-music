@@ -7,7 +7,7 @@ A curated list of resources for finding local music everywhere
 Not a list of shows, but a resources for where to find local shows  
   
 # Atlanta, GA  
-[The Masquerade]() **BE WARNED! THEY SPAM HARD!**
+[The Masquerade]() **BE WARNED! THEY SPAM HARD!**  
 [The Earl](http://www.badearl.com) - [FB](https://www.facebook.com/EARLeav/)  
 [The Starbar](http://www.starbaratlanta.com) - [FB](https://www.facebook.com/star.bar.142/)  
   
