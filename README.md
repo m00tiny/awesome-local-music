@@ -10,6 +10,9 @@ Not a list of shows, but a resources for where to find local shows
 [The Masquerade]() **BE WARNED! THEY SPAM HARD!**  
 [The Earl](http://www.badearl.com) - [FB](https://www.facebook.com/EARLeav/)  
 [The Starbar](http://www.starbaratlanta.com) - [FB](https://www.facebook.com/star.bar.142/)  
+The 529
+Zapatas
+The Clairmont Lounge
   
 # Sacramento, CA  
 [Punch and Pie Productions](https://www.facebook.com/PunchAndPieProductions/)  
